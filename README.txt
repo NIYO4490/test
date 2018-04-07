@@ -1,2 +1,5 @@
 Irohanihoheto ituka tirinuruwo
 samayou kotosae yurusenakatta
+
+kotobashiru anataha ima
+oshietekureta ikirudakedeha tumito
