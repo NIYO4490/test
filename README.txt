@@ -1,1 +1,2 @@
-Irohanihohetotirinuruwo
+Irohanihoheto ituka tirinuruwo
+samayou kotosae yurusenakatta
